@@ -19,7 +19,7 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 ## Related Experience
 
-### Data Science Lead
+### Sales Associate
 
 `February 2024 - Present`
 __Beans and Brews__, General Manager
